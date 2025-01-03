@@ -1,4 +1,4 @@
-## Hi, I'm Deekshith c👋
+## Hi, I'm Deekshith👋
 ## I'm a passionate Computer Science student
 
 
